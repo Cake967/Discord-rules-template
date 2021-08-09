@@ -23,3 +23,11 @@
 > Be considerate to all users <br>
 > Stay on topic <br>
 > Give appropriate feedback
+
+4
+
+> Do not discuss politics, religion or sex.
+> No unrelated discussion in unappropriate channels.
+> Have a positive attitude.
+> Don't complain.
+> No spam, malware, or any such kind of bad behaviour
